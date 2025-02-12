@@ -1,2 +1,5 @@
 # miro-
 entrega de wireframe ecommerce personal
+Gabriela bchanchicocha
+https://miro.com/welcomeonboard/UTI2OGNJQkNodDRkQ2JNK1NrYm1LYyswWktKOGhycFlFcGQvNWtWeWZyQ0x0T2pEeWMxODVWcWJ1MVJoWTJaOHdENjcxSzhDNVRrR1dwRlZhcEpLNHkySEh1Y2ZLNkFndXdkaTh4UEc0bHQ0N2ppWjJQMGhvR1NvTUduUFFnT3pzVXVvMm53MW9OWFg5bkJoVXZxdFhRPT0hdjE=?share_link_id=576304611353
+11/02/2025
